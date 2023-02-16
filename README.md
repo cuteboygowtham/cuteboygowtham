@@ -3,7 +3,7 @@
 Application Support | 📚Reader | Learner | 🧑‍💻Tech Enthusiast | Linux Lover
 
 - 🍀I'm currently learning DevOps Tools
-- 👨‍💼For now, Working as Application Support.
+- 👨‍💼For now, Working as Application Support/Techinal Support.
 
 You can find me on [Twitter](https://twitter.com/Gowtham_avilala) and [Instagram](https://www.instagram.com/cuteboygowtham/)
 
